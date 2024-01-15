@@ -1,7 +1,7 @@
 # cohort14 Participant
 
-## seunbayo  grazac
-## damilare
+## seunbayo  
+## damilare adebesin
 ## marvelous
 ## opeyemi
 ## muyiwas
